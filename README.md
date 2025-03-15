@@ -5,3 +5,4 @@ several journals, such as Nonlinear Dynamics (Q1, SCI, IF‑5.2) and Chaos (AIP 
 ### Links
 
 - Website : [Google Scholar](https://scholar.google.com/citations?user=J2VHESsAAAAJ&hl=en)
+- ResearchGate : [Mohammed Berir](https://www.researchgate.net/profile/Mohammed-Berir?ev=hdr_xprf)
